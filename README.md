@@ -1,2 +1,2 @@
 # Repositorio1
-Mi primer repositorio
+Soy Eduardo Rafael Galaviz Aleman me gusta dibujar, jugar videojuegos, pasar tiempo con mi familia y soy bueno dibujando. Me gustaria que mi casa de grande sea grande y elegante que tenga pilares y grandes ventanas. Me gustaria viajar a Paris o a los Angeles, mi pasatiempo favorito es dibujar o hacer manualidades. Estoy decepcionado con mis calificaciones del tercer semestre y considero un exito haber conseguido un diploma en la secundaria por un promedio de 10.
